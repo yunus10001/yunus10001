@@ -1,1 +1,1 @@
-# Hi there 👋 my name is Ali E
+# Hi there my name is Ali 
